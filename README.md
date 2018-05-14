@@ -1,1 +1,0 @@
-# daniyalinayat.github.io
